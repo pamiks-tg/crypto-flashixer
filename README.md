@@ -11,4 +11,3 @@
 
 
 - Programmer : `Mmdrza.Com`
-- <a href="https://mmdrza.com/flashixer2-6-9" rel="dofollow" title="Flashixer 2.6.9 New version for flashing bitcoin wallet and exchange very fast">Flashixer2.6.9 [New]</a>
